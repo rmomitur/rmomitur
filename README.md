@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rmomitur
+- 👋 Hi, I’m Momitur Rahman (@rmomitur)
 - 🌱 I’m currently learning ...
 
 
